@@ -12,8 +12,8 @@ Please take a screenshot of the windows screen
 
 # General content
 (All the teammates are requested to enter your text strictly in line 15 only)
-
-
+The session can be given to the students presentations
+It is good to everyone for doing projects.
 
 
 
